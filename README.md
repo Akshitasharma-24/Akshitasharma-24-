@@ -1,3 +1,4 @@
+9
 **STUDENT INDUCTION PROGRAM (2024)**
 *GURU NANAK DEV ENGINEERING COLLAGE LUDHIANA*
 
@@ -48,3 +49,8 @@
 | ----------- | ----------- |
 | We have classes of English activities | At our first lecture we was able to know about some phase such as "To breake down ice " and we all come to know how to introduce ourselves in confident as well as in differnt ways |
 | our second lecture was again of Englishactivities| There our seniors come and they gave us 7 minutes to think about any topic then we have to speak for thay topic for 3 minutes in any language which boost our confidence and boost our speaking skills|
+
+| Date-17/7/2024 | student induction program day 6|
+| ----------- | ----------- |
+| Mathematics class | Today we learn about basics of intergrals , write their basic formulas and solve some mathematical problems|
+| UHV class | After that we have our universal human values class their again we were able to learn about human values and the key point I caught was " when we will happy then only we can make everyone happy" |
