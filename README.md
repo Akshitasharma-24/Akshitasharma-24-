@@ -54,3 +54,9 @@
 | ----------- | ----------- |
 | Mathematics class | Today we learn about basics of intergrals , write their basic formulas and solve some mathematical problems|
 | UHV class | After that we have our universal human values class their again we were able to learn about human values and the key point I caught was " when we will happy then only we can make everyone happy" |
+
+| Date - 18/8/2024  | Student induction program day 7|
+| ----------- | ----------- |
+| Peer interaction about canva | Our peers teaches us about canva and gave us homework to make a template by our own |
+![](image.jpg)
+| Mathematics class|  we came to learn intergrals more and yeah one short trick of solving intergration of specific values|
