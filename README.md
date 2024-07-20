@@ -60,6 +60,6 @@
 | Peer interaction about canva | Our peers teaches us about canva and gave us homework to make a template by our own |
 ![](image.jpg)
 | Mathematics class|  we came to learn intergrals more and yeah one short trick of solving intergration of specific values|
-
+| ----------- | ----------- |
 | Dr. harwinder singh sir | He is the main officer of NCC at our campus He talks about benefits of NCC and tells us about Camps of Ncc and we came to know that our collage have air wing as well as police Wing NCC|
 | Er.Jasvir singh Grewal | He is the main officer of NSS at our campus and help us to know about NSS |
