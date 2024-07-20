@@ -65,6 +65,8 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | ----------- | ----------- |
 | Dr. harwinder singh sir | He is the main officer of NCC at our campus He talks about benefits of NCC and tells us about Camps of Ncc and we came to know that our collage have air wing as well as police Wing NCC|
 | Er.Jasvir singh Grewal | He is the main officer of NSS at our campus and help us to know about NSS |
+**After my classes I have completed my excel beginers courses and have scored my certificate**
+![alt text](image.jpg)
 
 | Date-19/7/2024 | Student induction program day 8 |
 | ----------- | ----------- |
