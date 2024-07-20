@@ -65,3 +65,9 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | ----------- | ----------- |
 | Dr. harwinder singh sir | He is the main officer of NCC at our campus He talks about benefits of NCC and tells us about Camps of Ncc and we came to know that our collage have air wing as well as police Wing NCC|
 | Er.Jasvir singh Grewal | He is the main officer of NSS at our campus and help us to know about NSS |
+
+| Date-19/7/2024 | Student induction program day 8 |
+| ----------- | ----------- |
+| Er.kanwardeep kalra sir   | Er. kanwardeep kalra sir  is again a best speaker and motivates us very much he shares his experience and advised us not to reapeat his misatkes |
+| Jaswinder singh incharge-IAPT | jaswindersingh sir is incharge of IAPT and has a great personality he motivates us too|
+| Department visit / mentor Intraction | Description |
