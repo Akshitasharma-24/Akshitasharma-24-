@@ -13,3 +13,18 @@
 # Get to know about our sections 
 ## Get folders 📂 of our name and brach  
 ### All respected teachers and seniors welcome us and motivate us
+
+| Date - 10/7/2024| induction program day 2 |
+| ----------- | ----------- |
+| came to visit different cheerful teachers  | get to know about our collage more and about some different events,clubs |
+| **SCIE EVENTS**
+**ISTE**
+**COMBINED EVENTS (SCIE + ISTE)**
+**E2E2**
+**SAE**
+**ISHRAE**
+**DATA SCIENCE CLUB**
+**CAUSMIC CLUB**
+**ITIAN club**
+**E-Cell and IIC**
+**ENTERPERNURSHIP CLUB** |
