@@ -73,4 +73,6 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | ----------- | ----------- |
 | Er.kanwardeep kalra sir   | Er. kanwardeep kalra sir  is again a best speaker and motivates us very much he shares his experience and advised us not to reapeat his misatkes |
 | Jaswinder singh incharge-IAPT | jaswindersingh sir is incharge of IAPT and has a great personality he motivates us too|
-| Department visit / mentor Intraction | Description |
+| Department visit / mentor Intraction | There we came to know about labs and also we have our labs lectures |
+
+** WE have holidays on Saturday and Sunday (20/7/24) and ( 21/7/24)**
