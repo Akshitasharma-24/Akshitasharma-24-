@@ -76,3 +76,10 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | Department visit / mentor Intraction | There we came to know about labs and also we have our labs lectures and they tell us about exam patterns |
 
 **WE have holidays on Saturday and Sunday (20/7/24) and ( 21/7/24)**
+
+| Date - 22/7/24 | Student induction program day 9 |
+| ----------- | ----------- |
+| Dr. S.B. singh sir  | sir tells us to take out our pages and to write down our names , our goals and many more he gave us some time to think about our dream life and what to do to get that dream life a reality |
+| Dr. pushpinder singh sir | sir gave us a huge knowledge and tells us to diffentiate and to know about our learning style and he says us to do deep study he also tells us about the legendary woman "SUDHA MURTHY" | 
+| ----------- | ----------- |
+| causmic club  | Today we were able know about SDI  we linked online through Google meet to a sir who tells us about startups and many more things then ma'am show us some glimpses of today's generation  harming animals , pollution at its peak and we discussed some way to make our life little bit better |
