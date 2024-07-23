@@ -18,7 +18,7 @@
 
 | Date - 11/7/2024| induction program day 2 |
 | ----------- | ----------- |
-| came to visit different cheerful teachers  | get to know about our collage more and about some different events,clubs |
+| came to Intract with different cheerful teachers  | get to know about our collage more and about some different events,clubs |
 | **SCIE EVENTS**
 **ISTE**
 **COMBINED EVENTS (SCIE + ISTE)**
