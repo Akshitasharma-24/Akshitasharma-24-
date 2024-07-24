@@ -16,6 +16,8 @@
 ## Get folders 📂 of our name and brach  
 ### All respected teachers and seniors welcome us and motivate us
 
+
+
 | Date - 11/7/2024| induction program day 2 |
 | ----------- | ----------- |
 | came to Intract with different cheerful teachers  | get to know about our collage more and about some different events,clubs |
@@ -31,13 +33,18 @@
 **E-Cell and IIC**
 **ENTERPERNURSHIP CLUB** |
 
+
+
 | Date -12/7/24 | Student induction program day 3 |
 | ----------- | ----------- |
 | All the students section wise goes to their classes respectively and have their lectures in applied science department | 
 | I have my mathematics and UHV classes|
 | At mathematics class we students of CSA came to study about derivatives | At our UHV classes we studied about universal human values |
 
+
 **WE HAVE HOLIDAY ON SATURDAY AND SUNDAY ( 13/7/204 AND 14/7/2024)**
+
+
 
 | Date - 15/7/2024 | Student induction program day 4 .We have alternate days of classes and auditorium on 15/7/2024 we have class at auditorium and again great personalities came to guide us and to motivate us |
 | ----------- | ----------- |
@@ -46,15 +53,21 @@
 ### Mr. Sony Goyal sir - He was enterpurnure by profession and main theme of this lecture was " 1 2 ka 4" really a best teacher who motivates as well as make everyone laugh . The main point I was able to caught from his lesson was to do 100% of yourself in everything 
 #### Mr. pancham sir - The way he entres in auditorium was lovely and everyone enjoyed that. he was the fourth year student of mechanical in our collage . In his lecture we were able to understand some basic things of body language 
 
+
+
 | Date - 16/7/2024 | Student inductionprogram day 5 |
 | ----------- | ----------- |
 | We have classes of English activities | At our first lecture we was able to know about some phase such as "To breake down ice " and we all come to know how to introduce ourselves in confident as well as in differnt ways |
 | our second lecture was again of Englishactivities| There our seniors come and they gave us 7 minutes to think about any topic then we have to speak for thay topic for 3 minutes in any language which boost our confidence and boost our speaking skills|
 
+
+
 | Date-17/7/2024 | student induction program day 6|
 | ----------- | ----------- |
 | Mathematics class | Today we learn about basics of intergrals , write their basic formulas and solve some mathematical problems|
 | UHV class | After that we have our universal human values class their again we were able to learn about human values and the key point I caught was " when we will happy then only we can make everyone happy" |
+
+
 
 | Date - 18/7/2024  | Student induction program day 7|
 | ----------- | ----------- |
@@ -69,6 +82,7 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 ![IMG-20240718-WA0017](https://github.com/user-attachments/assets/914fdbae-74a1-4114-b933-38d23266f8b3)
 
 
+
 | Date-19/7/2024 | Student induction program day 8 |
 | ----------- | ----------- |
 | Er.kanwardeep kalra sir   | Er. kanwardeep kalra sir  is again a best speaker and motivates us very much he shares his experience and advised us not to reapeat his misatkes |
@@ -77,6 +91,8 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 
 **WE have holidays on Saturday and Sunday (20/7/24) and ( 21/7/24)**
 
+
+
 | Date - 22/7/24 | Student induction program day 9 |
 | ----------- | ----------- |
 | Dr. S.B. singh sir  | sir tells us to take out our pages and to write down our names , our goals and many more he gave us some time to think about our dream life and what to do to get that dream life a reality |
@@ -84,7 +100,17 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | ----------- | ----------- |
 | causmic club  | Today we were able know about SDI  we linked online through Google meet to a sir who tells us about startups and many more things then ma'am show us some glimpses of today's generation  harming animals , pollution at its peak and we discussed some way to make our life little bit better |
 
+
+
 | Date -23/7/24 | Student induction program day 10 |
 | ----------- | ----------- |
 | Mathematics | Today at our Mathematics class we started differential equations and partice some mathematical problems |
 | Peer interaction about collage | At this class our peers tells is about our collage including hostels,  canteens , swimming pool . Our peers tells us also to be updated on our official website gndec.ac.in to get updated regarding any events and examinations |
+
+
+
+| Date -24/7/24  | Student induction program day 11|
+| ----------- | ----------- |
+| Mr. gauravdeep singh sir  | Sir was a great speaker and i personally feel the best speaker of the day he was full confident and shares his experiences he tells not to feel bad about you're failure . failure tells you to improve and polish yourself |
+| Er. lakhveer singh sir | The sir was from Civil department and gives us knowledge about CML NPET which helps us to get to know about  online knowledge mode |
+| Causmic club  | Causmic club is the one of the main clubs of our collage . our seniors helps us to know about events performed by Causmic club and everyone scan QR code to get enrolled in Causmic club |
