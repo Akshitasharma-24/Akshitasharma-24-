@@ -38,9 +38,12 @@
 | Date -12/7/24 | Student induction program day 3 |
 | ----------- | ----------- |
 | All the students section wise goes to their classes respectively and have their lectures in applied science department | 
-| I have my mathematics and UHV classes|
-| At mathematics class we students of CSA came to study about derivatives | At our UHV classes we studied about universal human values |
 
+*I have my mathematics and UHV classes*
+
+ 
+| At our Mathematics class sir taught us about differentiation and we practice sum | At our UHV class we came to know the value and importance of Universal human values |
+| ----------- | ----------- |
 
 **WE HAVE HOLIDAY ON SATURDAY AND SUNDAY ( 13/7/204 AND 14/7/2024)**
 
