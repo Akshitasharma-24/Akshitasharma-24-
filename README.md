@@ -89,7 +89,7 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | Date-19/7/2024 | Student induction program day 8 |
 | ----------- | ----------- |
 | Er.kanwardeep kalra sir   | Er. kanwardeep kalra sir  is again a best speaker and motivates us very much he shares his experience and advised us not to reapeat his misatkes |
-| Jaswinder singh incharge-IAPT | jaswindersingh sir is incharge of IAPT he gets us into the world of physics and Mathematics he also showed great experiments seriously  what a lovely teacher he was |
+| Jaswinder singh incharge-IAPT | jaswindersingh sir is incharge of IAPT he gets us into the world of physics and Mathematics he also showed great experiments .seriously,  what a lovely teacher he was |
 | Department visit / mentor Intraction | There we came to know about labs and also we have our labs lectures and they tell us about exam patterns |
 
 **WE have holidays on Saturday and Sunday (20/7/24) and ( 21/7/24)**
