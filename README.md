@@ -78,7 +78,6 @@
 Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user-attachments/assets/c2c80833-9e06-41bd-8485-5077d3ef8d25)
 ](image.jpg)
 | Mathematics class|  we came to learn intergrals more and yeah one short trick of solving intergration of specific values|
-| ----------- | ----------- |
 | Dr. harwinder singh sir | He is the main officer of NCC at our campus He talks about benefits of NCC and tells us about Camps of Ncc and we came to know that our collage have air wing as well as police Wing NCC|
 | Er.Jasvir singh Grewal | He is the main officer of NSS at our campus and help us to know about NSS |
 **After my classes I have completed my excel beginers courses and I have generated my certificate I came to learn more about excel with increases my knowledge #gndec #offical.gndec**
@@ -100,7 +99,6 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | ----------- | ----------- |
 | Dr. S.B. singh sir  | sir tells us to take out our pages and to write down our names , our goals and many more he gave us some time to think about our dream life and what to do to get that dream life a reality |
 | Dr. pushpinder singh sir | sir gave us a huge knowledge and tells us to diffentiate and to know about our learning style and he says us to do deep study he also tells us about the legendary woman "SUDHA MURTHY" | 
-| ----------- | ----------- |
 | causmic club  | Today we were able know about SDI  we linked online through Google meet to a sir who tells us about startups and many more things then ma'am show us some glimpses of today's generation  harming animals , pollution at its peak and we discussed some way to make our life little bit better |
 
 
@@ -122,4 +120,5 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | Date- 25/7/24 | Student induction program day 12 |
 | ----------- | ----------- |
 | UHV  | Today we have our Mathematics  test so we revised our Mathematics test topics |
-| Peer interaction technical |  |
+| Peer interaction technical | They tells us about github and differences between A.I and Generated AI and also we learnt about machine learning and then we studied about Excel came to know functions such as upper , lower , concatenate . And also studied about data validation . Mail merging |
+| Maths test  | Then we have our Mathematics test |
