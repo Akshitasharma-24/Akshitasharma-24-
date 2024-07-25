@@ -117,3 +117,9 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | Mr. gauravdeep singh sir  | Sir was a great speaker and i personally feel the best speaker of the day he was full confident and shares his experiences he tells not to feel bad about you're failure . failure tells you to improve and polish yourself |
 | Er. lakhveer singh sir | The sir was from Civil department and gives us knowledge about CML NPET which helps us to get to know about  online knowledge mode |
 | Causmic club  | Causmic club is the one of the main clubs of our collage . our seniors helps us to know about events performed by Causmic club and everyone scan QR code to get enrolled in Causmic club |
+
+
+| Date- 25/7/24 | Student induction program day 12 |
+| ----------- | ----------- |
+| UHV  | Today we have our Mathematics  test so we revised our Mathematics test topics |
+| Peer interaction technical |  |
