@@ -122,3 +122,10 @@ Template created by me[Screenshot_20240718-151933_Canva](https://github.com/user
 | UHV  | Today we have our Mathematics  test so we revised our Mathematics test topics |
 | Peer interaction technical | They tells us about github and differences between A.I and Generated AI and also we learnt about machine learning and then we studied about Excel came to know functions such as upper , lower , concatenate . And also studied about data validation . Mail merging |
 | Maths test  | Then we have our Mathematics test |
+
+| Date-26/7/24 | Student induction  program day 13|
+| ----------- | ----------- |
+| Dr. kanwalpreet K bhatt | mam was medication counselor and Homeopathic practitioner today we came to know the importance of meditation 🧘‍♀️ and we all have done meditation approximately 20 minutes |
+| valedictory| Today we all have fun and culture comitte organises tha event all have fun and there was singing and dancing competition we enjoyed too much |
+
+**TODAY WAS OUR LAST DAY OF INDUCTION PROGRAM AND I AM FULL MOTIVATED . I CAME TO LEARN MANY NEW THINGS FROM INDUCTION PROGRAM**
